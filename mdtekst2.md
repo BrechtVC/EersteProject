@@ -1,1 +1,1 @@
-Dit is een tekst gemaakt door Brecht Von Kampf.
+Dit is een tekst gemaakt door Brecht Van Kampf.
